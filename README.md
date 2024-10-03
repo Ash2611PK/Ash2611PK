@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Ash2611PK
-- 👀 I’m interested in Art and Gaming
-- 🌱 I’m currently Studing in Grade 11 Science
-- 💞️ I’m looking to collaborate on Games
-- 📫 How to reach me . You can contact me on my Gmail- woke.ash05@gmail.com AND discord - Miyuki_Sensei#9690
+- 👀 I’m interested in Art and Coding
+- 🌱 I’m currently Studing.... 
+- 💞️ I’m looking to collaborate with you
+- 📫 How to reach me . You can contact me on my Gmail- woke.ash05@gmail.com & discord - Miyuki_Sensei#9690 & INSTA- _miyuki_sensei_
 
 <!---
 Ash2611PK/Ash2611PK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
