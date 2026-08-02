@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ash2611PK
+- 👋 Hi, I am Praveen Arya
 - 👀 I’m interested in Art and Coding
 - 🌱 I’m currently Studing.... 
 - 💞️ I’m looking to collaborate with you
